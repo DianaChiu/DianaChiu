@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi My friends 👋
 - 🔭 I’m currently working on Department of Psychology.
 - 🌱 I’m currently interesting in cognitive neuroscience,deaf reading, executive function.
 
